@@ -1,1 +1,0 @@
-This Egg-Free Nutella Mug cake takes only 1 minute to make in the microwave! The cake is fluffy and delicious, filled with chocolate chips! Just the perfect dessert, with simple ingredients, for when you need a quick chocolate fix.
